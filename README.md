@@ -1,6 +1,6 @@
-# 💫 About Me:
-
 ![blinkiesCafe-kI](https://github.com/user-attachments/assets/18b884ef-c780-4a2b-a4d4-021de5d4345d)
+
+# 💫 About Me:
 
 Just a chill who build cool stuff for free !
 
