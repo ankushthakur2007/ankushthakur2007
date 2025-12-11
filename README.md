@@ -1,4 +1,4 @@
-<img src="https://drive.google.com/uc?export=view&id=1na__1QOoUK6lFj8DWdRn6xDMB8yGAH6n" alt="blinkiesCafe-kI" width="100%">
+![blinkiesCafe-kI](https://drive.google.com/uc?export=view&id=1na__1QOoUK6lFj8DWdRn6xDMB8yGAH6n)
 
 # 💫 About Me:
 
