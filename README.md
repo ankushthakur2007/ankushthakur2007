@@ -1,4 +1,4 @@
-![blinkiesCafe-kI](https://drive.google.com/uc?export=view&id=1na__1QOoUK6lFj8DWdRn6xDMB8yGAH6n)
+![blinkiesCafe-kI](https://github.com/user-attachments/assets/18b884ef-c780-4a2b-a4d4-021de5d4345d)
 
 # 💫 About Me:
 
